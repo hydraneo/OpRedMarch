@@ -1,4 +1,3 @@
-
 # The Green March: A SWOT Analysis
 ## Introduction
 The Green March was a peaceful protest organized by Morocco in 1975 to claim sovereignty over Western Sahara. The protest involved hundreds of thousands of Moroccans marching from different parts of the country to Western Sahara to reclaim the territory from Spain.
